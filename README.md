@@ -1,4 +1,4 @@
-this is for school - dont download unless yer my classmates lol - i wont check tho lol
+this is for school - dont download unless yer my classmates lol - i wont check tho XDDDDD
 
 all the code was generated and compiled by google's new weird antigravity thing
 
